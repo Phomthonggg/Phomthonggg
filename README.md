@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Phomthonggg
-I next become Mr.Millionaire
+I next become Millionaire
